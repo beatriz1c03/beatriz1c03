@@ -1,0 +1,5 @@
+- 👋 Oioi! Eu sou a Beatriz, bem vindo ao meu perfil! segue algumas informaçôes pra vocês:
+- 👀 Estou interessada em - Fazer amigos, jogos online, livros, series, filmes e animes.
+- 🌱 Estou cursando em - Alura
+- 💞️ Estado civil - Namorando
+- 📫 Como entrar em contato comigo - @d3ad._b0dy no ig ou me mande solicitação no roblox: Biaaah_chan ou Rip_yum1xzy.
